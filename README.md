@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ioannidisAlex
-- 👀 I’m interested in Coding n Nature
+- 👀 I’m interested in Life * Coding, Love, Nature
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on any projects
 - 📫 How to reach me? email me on ioalexandros@hotmail.com
 
 <!---
